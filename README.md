@@ -1,1 +1,1 @@
-# Nesne-Yonelimli-Analiz-ve-Tasar-m-Proje-Odevi
+# Nesne-Yonelimli-Analiz-ve-Tasarim-Proje-Odevi
